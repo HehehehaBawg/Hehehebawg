@@ -1,2 +1,2 @@
 # FiveNights2NOHACKS
-for my viewers :3
+This wasnt by me lol. Give sussygamedeveloper your support
